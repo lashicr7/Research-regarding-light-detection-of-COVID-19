@@ -1,1 +1,0 @@
-# Research-regarding-light-detection-of-COVID-19
